@@ -1,0 +1,1 @@
+# Aplikacja-mened-er-zada-
